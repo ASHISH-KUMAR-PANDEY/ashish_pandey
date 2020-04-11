@@ -1,1 +1,0 @@
-# ashish_pandey.md
